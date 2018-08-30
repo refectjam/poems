@@ -1,6 +1,6 @@
 ## Mesh
 
-one two gather
+one twogether
 
 flat unique
 
@@ -18,6 +18,6 @@ tossing signs
 
 ---
 
-blended vision
+blended thought
 
 never dies
