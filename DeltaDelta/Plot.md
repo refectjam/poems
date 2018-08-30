@@ -6,9 +6,11 @@ know decay
 
 ---
 
-cycle feeds
+cycle bleeds
 
 stagnant day
+
+---
 
 ---
 
