@@ -8,4 +8,4 @@ now ends next
 
 query hung
 
-always more less
+in more less
