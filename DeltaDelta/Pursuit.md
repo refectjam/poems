@@ -15,6 +15,8 @@ only certain history
 
 virtualized in-between
 
+---
+
 partial vision
 
 seen two scene
