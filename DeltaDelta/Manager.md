@@ -15,7 +15,7 @@ misdirection
 
 delusion drips
 
-dreams disable
+dreams disabled
 
 ---
 
