@@ -1,4 +1,4 @@
-## Conjour
+## Conjure
 
 light ignite
 
@@ -10,6 +10,7 @@ oscillating lense
 
 so far nearer
 
+---
 ---
 
 vibrations stir
