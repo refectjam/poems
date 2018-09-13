@@ -13,7 +13,7 @@ dark invests
 ---
 ---
 
-soul starvation
+soul on last
 
 gone not far
 
@@ -28,7 +28,7 @@ freed from jar
 
 wings touch life
 
-breath a knew
+breathe a knew
 
 ---
 
