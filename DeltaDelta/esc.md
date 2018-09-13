@@ -1,6 +1,6 @@
 ## esc
 
-collapse lost color
+collapsed lost color
 
 crystals reject
 
@@ -28,7 +28,7 @@ freed from jar
 
 wings touch life
 
-breathe a knew
+breath a knew
 
 ---
 
