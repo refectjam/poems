@@ -34,4 +34,4 @@ charge a knew
 
 ideas of tomorrow
 
-pull three through
+pull three threw
