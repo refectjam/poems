@@ -8,7 +8,7 @@ crystals reject
 
 white diminished
 
-darken vest
+dark invest
 
 ---
 ---
