@@ -21,7 +21,7 @@ gone not far
 
 plead four give
 
-freed from jar
+free from jar
 
 ---
 ---
