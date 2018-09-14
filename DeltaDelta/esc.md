@@ -8,7 +8,7 @@ crystals reject
 
 white diminished
 
-dark invests
+darken vest
 
 ---
 ---
@@ -26,12 +26,12 @@ freed from jar
 ---
 ---
 
-wings touch life
+bits touch life
 
-breath a knew
+charge a knew
 
 ---
 
 ideas of tomorrow
 
-carry three through
+pull three through
