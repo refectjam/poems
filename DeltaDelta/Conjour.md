@@ -19,9 +19,7 @@ time expands
 
 ---
 
-spear it 
-
-inject
+spirits inject
 
 ---
 
