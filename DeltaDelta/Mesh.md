@@ -19,8 +19,8 @@ tossing signs
 
 ---
 
-blended voices
+blended thought
 
 ---
 
-never die
+never dies
