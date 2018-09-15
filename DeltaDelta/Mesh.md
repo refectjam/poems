@@ -23,4 +23,4 @@ blended voices
 
 ---
 
-hardly die
+never die
