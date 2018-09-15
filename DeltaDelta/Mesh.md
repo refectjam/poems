@@ -1,6 +1,6 @@
 ## Mesh
 
-one twogether
+one together
 
 flat unique
 
