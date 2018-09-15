@@ -8,7 +8,7 @@ crystals reject
 
 white diminished
 
-dark invests
+dark invest
 
 ---
 ---
