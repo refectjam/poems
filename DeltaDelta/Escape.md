@@ -19,7 +19,7 @@ gone in line
 
 ---
 
-plead four give
+plead fourgive
 
 closing time
 
