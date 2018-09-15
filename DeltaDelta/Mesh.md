@@ -19,7 +19,7 @@ tossing signs
 
 ---
 
-blended thought
+blended vision
 
 ---
 
