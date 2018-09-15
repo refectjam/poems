@@ -19,7 +19,9 @@ time expands
 
 ---
 
-ghosts inject
+spear it
+
+inject
 
 ---
 
