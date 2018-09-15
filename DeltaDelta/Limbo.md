@@ -8,4 +8,4 @@ now ends next
 
 query hung
 
-in more less
+stuck more less
