@@ -6,7 +6,7 @@ flat unique
 
 ---
 
-target port
+target channel
 
 magic freak
 
