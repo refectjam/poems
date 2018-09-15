@@ -6,10 +6,11 @@ flat unique
 
 ---
 
-target  port
+target port
 
 magic freak
 
+---
 ---
 
 dicing rhythm
@@ -19,5 +20,7 @@ tossing signs
 ---
 
 blended thought
+
+---
 
 hardly dies
