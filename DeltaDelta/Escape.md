@@ -6,7 +6,7 @@ crystals reject
 
 ---
 
-white diminished
+white diminish
 
 dark invest
 
@@ -15,13 +15,13 @@ dark invest
 
 soul on last
 
-gone not far
+gone in line
 
 ---
 
 plead four give
 
-free from jar
+closing time
 
 ---
 ---
