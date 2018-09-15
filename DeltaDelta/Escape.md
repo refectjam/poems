@@ -19,7 +19,7 @@ gone in line
 
 ---
 
-plead four give
+plead forgive
 
 closing time
 
@@ -33,6 +33,6 @@ charge a knew
 
 ---
 
-eyedeas of tomorrow
+ideas of tomorrow
 
 pull three threw
