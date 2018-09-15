@@ -20,4 +20,4 @@ tossing signs
 
 blended thought
 
-never dies
+hardly dies
