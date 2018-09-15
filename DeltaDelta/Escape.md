@@ -6,9 +6,9 @@ crystals reject
 
 ---
 
-white diminish
+white diminished
 
-dark invest
+dark invests
 
 ---
 ---
