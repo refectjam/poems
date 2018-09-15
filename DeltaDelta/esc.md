@@ -26,12 +26,12 @@ free from jar
 ---
 ---
 
-bits touch life
+bits fused life
 
 charge a knew
 
 ---
 
-ideas of tomorrow
+eyedeas of tomorrow
 
 pull three threw
