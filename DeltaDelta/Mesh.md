@@ -23,4 +23,4 @@ blended thought
 
 ---
 
-never dies
+hardly dies
