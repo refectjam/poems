@@ -19,8 +19,8 @@ tossing signs
 
 ---
 
-blended thought
+blended voices
 
 ---
 
-hardly dies
+guide our eyes
