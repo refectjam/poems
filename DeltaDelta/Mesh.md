@@ -19,7 +19,7 @@ tossing signs
 
 ---
 
-blended voices
+blended tongues
 
 ---
 
